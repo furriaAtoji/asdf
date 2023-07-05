@@ -1,0 +1,17 @@
+# Principles of Teaching 1 by Corpuz and Salandanan: A Book Review
+ 
+Principles of Teaching 1 by Corpuz and Salandanan is a book that aims to align teacher education with the new teacher education curriculum that is reflective of the National Competency-Based Teacher Standards (NCBTS) in the Philippines. The book covers various topics such as the elements of teaching and learning, the principles of learning, the teaching methods and strategies, the assessment of learning outcomes, and the professional development of teachers. The book also provides activities and exercises that are intended to promote reflective teaching, constructivist teaching, multicultural education, interactive and integrative teaching, authentic assessment and teaching for understanding.
+ 
+The book is divided into four units, each consisting of several chapters. The first unit introduces the basic concepts and foundations of teaching and learning, such as the nature and goals of education, the roles and competencies of teachers, the characteristics and needs of learners, and the factors affecting teaching and learning. The second unit discusses the principles of learning that guide teachers in designing and delivering effective instruction, such as the behavioral, cognitive, humanistic, social and constructivist perspectives of learning. The third unit presents the various methods and strategies that teachers can use to facilitate learning, such as direct instruction, inquiry-based learning, cooperative learning, problem-based learning, discovery learning, differentiated instruction, and integrative teaching. The fourth unit focuses on the assessment of learning outcomes, such as the types, purposes, principles and techniques of assessment, as well as the interpretation and use of assessment results for improvement.
+ 
+**Download Zip ✸ [https://www.google.com/url?q=https%3A%2F%2Fbyltly.com%2F2uFx8B&sa=D&sntz=1&usg=AOvVaw2dUfKK3y0ov91L4K5NmeDo](https://www.google.com/url?q=https%3A%2F%2Fbyltly.com%2F2uFx8B&sa=D&sntz=1&usg=AOvVaw2dUfKK3y0ov91L4K5NmeDo)**
+
+
+ 
+The book is written in a clear and concise manner, with examples and illustrations that are relevant to the Philippine context. The book also provides references and suggested readings for further study. The book is suitable for pre-service and in-service teachers who want to enhance their knowledge and skills in teaching. The book is also useful for teacher educators who want to update their curriculum and pedagogy in line with the NCBTS.
+  
+The book also emphasizes the importance of the professional development of teachers, as they are expected to be lifelong learners who continuously update their knowledge and skills in teaching. The book provides suggestions and resources for teachers to engage in various forms of professional development, such as attending seminars and workshops, joining professional organizations, conducting action research, collaborating with colleagues, and pursuing further studies.
+ 
+In conclusion, Principles of Teaching 1 by Corpuz and Salandanan is a comprehensive and useful book that covers the essential aspects of teaching and learning. The book is based on the NCBTS framework that guides the Philippine teacher education curriculum. The book is also aligned with the K-12 curriculum that aims to develop holistic and globally competitive learners. The book is a valuable resource for teachers who want to improve their practice and professionalism in teaching.
+ 8cf37b1e13
+ 
